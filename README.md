@@ -1,3 +1,5 @@
+<a href="https://visitorbadge.io/status?path=marksw-e%2FREADME"><img src="https://api.visitorbadge.io/api/visitors?path=marksw-e%2FREADME&label=derp&countColor=%23d9e3f0&style=plastic" /></a>
+
 <img src="https://64.media.tumblr.com/9c14dec7b9dad586ec5a0f70748d3acf/2c233c0d3ddf0421-87/s75x75_c1/fa2d076ee8dfdb14d86c145df051a218527422b5.gifv"/> markswe, **mayor of awesome town**
 
 constant user of "noob, bro, dude, bruh, boy, boi, omg, pmo, lol, lmao," and fancy words 
@@ -20,4 +22,3 @@ i am a little bit odd and make jokes some would not like (such as sex because IT
 i like mynf friends they are cute and awesome and i want to pet them
 
 <img width="1204" height="104" alt="image" src="https://github.com/user-attachments/assets/d4480a3f-5c9e-4fb3-9fed-34c1d9a3a78a" />
-
