@@ -22,3 +22,5 @@ i am a little bit odd and make jokes some would not like (such as sex because IT
 i like mynf friends they are cute and awesome and i want to pet them
 
 <img width="1204" height="104" alt="image" src="https://github.com/user-attachments/assets/d4480a3f-5c9e-4fb3-9fed-34c1d9a3a78a" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/4d9c8318-15a4-4855-9900-41142f687846" />
+
