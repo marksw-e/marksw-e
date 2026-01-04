@@ -1,4 +1,4 @@
-<p align=center>
+<p align=center><a href="https://visitorbadge.io/status?path=marksw-e%2FREADME"><img src="https://api.visitorbadge.io/api/visitors?path=marksw-e%2FREADME&label=derp&countColor=%23d9e3f0&style=plastic" /></a>
 <img width="1337" height="875" alt="New Drawing2 (1)" src="https://github.com/user-attachments/assets/bdcf97c4-3146-4a61-8361-968f68981171" />
 
 
