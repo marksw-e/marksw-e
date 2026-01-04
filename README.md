@@ -13,3 +13,4 @@ $${\color{red}You-can-call-me}$$ $${\color{red}PLaYER.}$$
                 minor
               
  
+<p align=center> i KNOW i drew their eyes wrong LEAVE ME ALONE
